@@ -52,7 +52,7 @@ You'll get the best experience working with me if you:
 
 📅 **Meetings & focus**
 
-I love collaborative, purposeful meetings — but I"m also very focus-driven.
+I love collaborative, purposeful meetings — but I'm also very focus-driven.
 
 - lots of context-switching can be draining
 - fewer, cleare meetings > many recurring ones
@@ -75,7 +75,7 @@ My partner is a first responder, which means I'm often solo-parenting part of th
 I also have ADD, and it's genuinely one of my creative superpowers. I'm fast-moving, intuitive, and very systems-oriented.
 It also means I do my best work with deep focus and minimal noise, and meeting-heavy days can be especially draining.
 
-If I'm slow to respond, it's usually life or volumne — not a lack of care. Sometimes I'm just behing on a long queue of Slack messages.
+If I'm slow to respond, it's usually life or volume — not a lack of care. Sometimes I'm just behind on a long queue of Slack messages.
 
 I really appreciate humans that give each other grace, clarity, and room to be human.
 
